@@ -21,3 +21,11 @@ Thanks to the many people whose hard work make this (relatively) easy.
 And the specific artists, of course:
 
 * Beetle, by [M Smith Jonn](https://poly.google.com/user/7wWSL6BMhDl) CC-BY licensed
+* Howling Wolf, by  [Katia Ariadna Orozco Morales](https://poly.google.com/user/9_JsTGYLjps) CC-BY licensed
+* Wild West Motorcycle, by [Cosva](https://sketchfab.com/svacomatija) CC-BY licensed
+* Poseidon Colony: Chemical Refinery, by [Binkley-Piratepants](https://sketchfab.com/Binkley-Piratepants) CC-BY licensed
+* Mecha Dolphin, by [Paris](https://sketchfab.com/AAAAAAAAAbla) CC-BY licensed
+* Tetranodoceras transversum (fossil), by [Digital Atlas of Ancient Life](https://sketchfab.com/DigitalAtlasOfAncientLife) CC-BY-SA licensed
+* Medieval Fantasy Book, by [Pixel](https://sketchfab.com/stefan.lengyel1) CC-BY licensed
+* Stegosaurus, by [Geoffrey Marchal](https://sketchfab.com/geoffreymarchal) CC-BY-NC licensed
+* Super Mario: Piranha Plant, by [Paul Yanez](https://sketchfab.com/paulyanez) CC-BY licensed
